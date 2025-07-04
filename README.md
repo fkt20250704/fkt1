@@ -15,4 +15,4 @@
 
 此外，互动功能也为观看体验增色不少。用户可以在评论区分享观后感，推荐好片，这不仅帮助大家更快找到优质影片，也促进平台内容的不断完善。总的来说，优质的日本AV免费资源网站应具备内容丰富、更新迅速、播放流畅、安全无广告和良好用户体验等特点。只有这样，才能真正满足广大用户对免费高质量日本AV的需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250704/fkt1）</span>
